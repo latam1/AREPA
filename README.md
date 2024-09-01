@@ -1,4 +1,4 @@
-![Zulia Republic](/20240812_021233.jpg)
+![Zulia Republic](/mapa.jpeg)
 
 # Structures 
 * Executive 
